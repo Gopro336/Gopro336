@@ -7,7 +7,7 @@
 
 
 
-join this:
+join for support:
 
 https://discord.gg/DYeyx32
 
