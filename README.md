@@ -10,3 +10,6 @@
 join this:
 
 https://discord.gg/DYeyx32
+
+cool website:
+https://www.quil.ai/?ref=TEMF43jyl
